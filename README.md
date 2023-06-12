@@ -15,3 +15,26 @@
 >  - Burgermeister
 >  - 60 seconds to Napoli
 >  - Der Fishladen
+
+
+# Eugenee:
+
+## 1. Name and age
+
+_Eugen_ ......
+
+## 2. Favourite color
+
+Any from red to blue or black to yellow
+
+## 3. Favourite language
+
+English because im a native german/russian speaker
+
+## 4. List of favourite restaurants
+
+1. Pizza4p's
+2. Old seafood lady by the beach
+3. Sailing Club NT
+4. Bun Bo by the Bridge
+
